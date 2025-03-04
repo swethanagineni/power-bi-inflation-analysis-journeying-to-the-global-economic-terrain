@@ -1,0 +1,1 @@
+# power-bi-inflation-analysis-journeying-to-the-global-economic-terrain
